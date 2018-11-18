@@ -2,4 +2,4 @@
 
 Hi
 
-I am terrible at ztuff like this!
+I am terrible at stuff like this!
